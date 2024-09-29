@@ -104,9 +104,9 @@ Le fromager devra se conformer strictement au règlement qui suit :
 
 \- La plus stricte impartialité devra toujours le guider pour l’inscription des pesées du lait, pour la distribution des tours de beurre aux sociétaires et la répartition journalière du petit lait aux abonnés ;
 
-[![clip_image018](/images/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image018_thumb.jpg "clip_image018")](/images/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image018_2.jpg)
+[![clip_image018](img/beguelins/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image018_thumb.jpg "clip_image018")](img/beguelins/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image018_2.jpg)
 
-[![clip_image020](/images/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image020_3be19010-1557-4c7b-8522-f7eb3621d523.jpg "clip_image020")]
+[![clip_image020](img/beguelins/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image020_3be19010-1557-4c7b-8522-f7eb3621d523.jpg "clip_image020")]
 
 \- Il devra tenir ses livres de comptabilités avec beaucoup de soins, faire chaque jour la balance des coulées.
 
@@ -152,4 +152,4 @@ Sa femme ne pourra jamais le remplacer dans son travail, ni se mêler des affair
 
 \- **de 1974 à 1976** GUYON Gérard
 
-[![clip_image024](/images/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image024_thumb.jpg "clip_image024")](/images/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image024_2.jpg)[![clip_image022](/images/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image022_thumb.jpg "clip_image022")](/images/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image022_2.jpg)
+[![clip_image024](img/beguelins/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image024_thumb.jpg "clip_image024")](img/beguelins/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image024_2.jpg)[![clip_image022](img/beguelins/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image022_thumb.jpg "clip_image022")](img/beguelins/Windows-Live-Writer/222ec7ab81d9_144CD/clip_image022_2.jpg)

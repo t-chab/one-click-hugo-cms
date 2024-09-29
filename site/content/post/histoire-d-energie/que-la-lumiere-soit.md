@@ -84,7 +84,7 @@ Le Conseil, vu la nécessité absolue de fournir une lumière suffisante aux hab
 
 …Pour m’en acquitter, je me suis rendu sur les lieux le 2 novembre 1920, j’ai visité les installations en compagnie de Mrs les Maires d’Outriaz et de Lantenay et l’un des Concessionnaires, Mr Charles Larçon…
 
-[![clip_image016](img/beguelins/Windows-Live-Writer/41ebb8075d6e_E3AF/clip_image016_thumb.jpg "clip_image016")](/images/Windows-Live-Writer/41ebb8075d6e_E3AF/clip_image016_2.jpg)
+[![clip_image016](img/beguelins/Windows-Live-Writer/41ebb8075d6e_E3AF/clip_image016_thumb.jpg "clip_image016")](img/beguelins/Windows-Live-Writer/41ebb8075d6e_E3AF/clip_image016_2.jpg)
 
 L’installation hydraulique comprend un barrage, un étang faisant réservoir et une conduite forcée partant de l’étang, la hauteur de chute est de 9 mètres.
 

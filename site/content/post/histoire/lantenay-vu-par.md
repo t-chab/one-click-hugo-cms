@@ -30,4 +30,4 @@ Le 8 novembre 2011, 12 h 22
 
 La commune comporte deux agglomérations, le village de Lantenay situé à 730 mètres d'altitude, et le hameau du Tremblay légèrement en contrebas.
 
-![](/images/image-M0Nj.png)
+![](img/beguelins/image-M0Nj.png)

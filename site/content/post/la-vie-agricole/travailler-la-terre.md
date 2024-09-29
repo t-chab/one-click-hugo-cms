@@ -40,9 +40,9 @@ C’est important le foin, si on veut du bon fromage !
 
 Et il faut le réussir, toute une technique : commencer par regarder la météo… pas de pluie, pas d’orages, on peut faucher. Après, il faut laisser sécher l’herbe et la retourner pour qu’elle sèche bien, puis regrouper le foin en ligne : faire les andains et pour passer la nuit ou si l’orage menace on met en cuchons. Le foin sec, on fait le chemin devant le char ; à la fourche il faut bien alterner les chargeurs pour avoir un char équilibré. Le ou les cogneurs chauchent pour mettre plus de foin et éviter qu’il ne glisse. Devant, derrière le char les râteleuses s’activent pour laisser le champ propre. De retour à la ferme, il faut monter à la déchargeuse et ranger le foin, bien sec, au fenil pour l’hiver. l
 
-[![clip_image0104](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image010_4__thumb.jpg "clip_image010[4]")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image010_4_.jpg)[![clip_image0084](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image008_4__thumb.jpg "clip_image008[4]")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image008_4_.jpg)
+[![clip_image0104](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image010_4__thumb.jpg "clip_image010[4]")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image010_4_.jpg)[![clip_image0084](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image008_4__thumb.jpg "clip_image008[4]")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image008_4_.jpg)
 
-[![clip_image012](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image012_thumb.jpg "clip_image012")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image012_2.jpg)
+[![clip_image012](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image012_thumb.jpg "clip_image012")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image012_2.jpg)
 
 LA POMME DE TERRE…
 
@@ -50,15 +50,15 @@ LA POMME DE TERRE…
 
 *(Statistiques du Préfet Bossi – 1808)*
 
-[![clip_image0026](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image002_6__thumb.jpg "clip_image002[6]")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image002_6_.jpg)
+[![clip_image0026](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image002_6__thumb.jpg "clip_image002[6]")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image002_6_.jpg)
 
 Qu’elle soit cultivée au jardin ou en plein champ, la pomme de terre a été longtemps la base de l’alimentation des hommes et des animaux.
 
-[![clip_image0046](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_6__thumb.jpg "clip_image004[6]")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_6_.jpg)[![clip_image0066](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image006_6__thumb.jpg "clip_image006[6]")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image006_6_.jpg)
+[![clip_image0046](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_6__thumb.jpg "clip_image004[6]")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_6_.jpg)[![clip_image0066](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image006_6__thumb.jpg "clip_image006[6]")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image006_6_.jpg)
 
 Plantée en ligne quand les lilas fleurissent, les semences sont souvent sélectionnées d’une année sur l’autre. Lorsque le plan est sorti de 15 à 20 cm, il est butté au bigot, il faut alors surveiller les parasites.
 
-[![clip_image0086](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image008_6__thumb.jpg "clip_image008[6]")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image008_6_.jpg)
+[![clip_image0086](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image008_6__thumb.jpg "clip_image008[6]")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image008_6_.jpg)
 
 Le ramassage manuel des doryphores occupait les loisirs des enfants pendant l’été et le ramassage de la pomme de terre par toute la famille marquait le temps de la rentrée des classes.
 

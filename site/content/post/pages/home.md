@@ -18,4 +18,4 @@ L’association « Béguelins, Béguelines » a vu le jour en 2001 à l’initia
 
 **Les béguelines de tous âges, d'origine et/ou d'adoption, ont fêté sainte Agathe cette année encore. Elles se sont retrouvées autour d'un bon repas à la "Veille Auberge" du Balmay. Ambiance conviviale avec des jeux culturels animés... et l'approche de mardi gras qui se fait sentir !**
 
-**![](/images/image-Y2NT.png)**
+**![](img/beguelins/image-Y2NT.png)**

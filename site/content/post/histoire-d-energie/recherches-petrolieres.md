@@ -58,15 +58,15 @@ Après avoir passé une convention avec les propriétaires des parcelles sur le 
 
 [![clip_image014](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image014_thumb.jpg "clip_image014")](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image014_2.jpg)
 
-[![clip_image016](/images/Windows-Live-Writer/e6d276593cef_F031/clip_image016_thumb.jpg "clip_image016")](/images/Windows-Live-Writer/e6d276593cef_F031/clip_image016_2.jpg)
+[![clip_image016](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image016_thumb.jpg "clip_image016")](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image016_2.jpg)
 
-[![clip_image018](/images/Windows-Live-Writer/e6d276593cef_F031/clip_image018_thumb.jpg "clip_image018")](/images/Windows-Live-Writer/e6d276593cef_F031/clip_image018_2.jpg)
+[![clip_image018](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image018_thumb.jpg "clip_image018")](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image018_2.jpg)
 
-[![clip_image020](/images/Windows-Live-Writer/e6d276593cef_F031/clip_image020_thumb.jpg "clip_image020")](/images/Windows-Live-Writer/e6d276593cef_F031/clip_image020_2.jpg)[![clip_image022](/images/Windows-Live-Writer/e6d276593cef_F031/clip_image022_thumb.jpg "clip_image022")](/images/Windows-Live-Writer/e6d276593cef_F031/clip_image022_2.jpg)
+[![clip_image020](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image020_thumb.jpg "clip_image020")](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image020_2.jpg)[![clip_image022](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image022_thumb.jpg "clip_image022")](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image022_2.jpg)
 
 **Le forage s’arrête à la cote – 1370 mètres**
 
-[![clip_image024](/images/Windows-Live-Writer/e6d276593cef_F031/clip_image024_thumb.jpg "clip_image024")](/images/Windows-Live-Writer/e6d276593cef_F031/clip_image024_2.jpg)
+[![clip_image024](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image024_thumb.jpg "clip_image024")](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image024_2.jpg)
 
 **Le 20 juin 1989,** le couchage du mât a eu lieu, laissant à la Société SLUMBERGER le soin d’évaluer les possibilités de pomper les premières gouttes de pétrole et de faire un diagnostic sur les possibilités de forage !!!
 
@@ -80,7 +80,7 @@ La seule solution possible consiste à assurer le raccordement des réservoirs d
 
 Le comité du syndicat du Valromey a fait connaitre son accord de principe sur ce projet.
 
-![clip_image026](/images/Windows-Live-Writer/e6d276593cef_F031/clip_image026_thumb.jpg "clip_image026")
+![clip_image026](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image026_thumb.jpg "clip_image026")
 
 *Le Progrès 6 octobre 1989*
 
@@ -90,7 +90,7 @@ La réserve d’hydrocarbures n’étant pas de grande importance, il a été d�
 
 Un parrainage culturel a été accordé à la commune de Lantenay par la Société ESSO REP. 10 000 francs sont offerts pour les bonnes relations entre les deux parties.
 
-[![clip_image028](/images/Windows-Live-Writer/e6d276593cef_F031/clip_image028_thumb.jpg "clip_image028")](/images/Windows-Live-Writer/e6d276593cef_F031/clip_image028_2.jpg)
+[![clip_image028](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image028_thumb.jpg "clip_image028")](img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image028_2.jpg)
 
 **En juin 1993**, le conseil municipal accepte la proposition d’ESSO REP de remise en état de la plate-forme de CHALEYRIAT LANTENAY, mais avec les réserves suivantes :
 
