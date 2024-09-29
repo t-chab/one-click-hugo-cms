@@ -102,4 +102,4 @@ publishedAt: '2011-11-08T13:32:15.000Z'
 
 **Place du Hangar** : depuis 1913 le hangar est, avec le four, le cœur du village. Il a longtemps permis de protéger les récoltes et le matériel mais aussi d’abriter les festivités des Béguelins : vogue, fête de la musique et depuis quelques années le vide grenier !
 
-![RUES_JPG.jpg](img/beguelins/.RUES_JPG_m.jpg "RUES_JPG.jpg, mai 2014")
+![RUES_JPG.jpg](img/beguelins/.RUES_JPG_m.jpg)
