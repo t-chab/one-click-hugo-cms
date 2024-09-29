@@ -66,17 +66,17 @@ En 1856, le premier chemin de fer est implanté dans l’Ain.
 
 A Lantenay, tout commence en 1897, alors que le premier réseau n’est pas encore achevé, le Conseil Général décide de donner satisfaction aux élus et aux populations concernées et pour cela de créer le deuxième réseau, dont la ligne Cerdon Ruffieu en passant par Saint Martin du frêne.
 
-[![numérisation0003](/images/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0003_thumb.jpg "numérisation0003")](/images/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0003_2.jpg)
+[![numérisation0003](img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0003_thumb.jpg "numérisation0003")](img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0003_2.jpg)
 
 Par la suite, le Conseil Municipal de Lantenay étudie l’avant projet d’une ligne Ruffieu – La Cluse passant par le col de la Lèbe – Cormaranche – Hauteville – La Grange Goyet (commune de Corcelles) et la Combe du Val.
 
 Il propose cependant le tracé par le col de Jalinard – Brénod – Le Cruchon et la Combe du Val.
 
-[![gare 1](/images/Windows-Live-Writer/eeafa2df8a37_F9D6/gare_1_thumb.jpg "gare 1")](/images/Windows-Live-Writer/eeafa2df8a37_F9D6/gare_1_2.jpg)
+[![gare 1](img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/gare_1_thumb.jpg "gare 1")](img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/gare_1_2.jpg)
 
 En 1899, le préfet demande une subvention de 6 000 francs à la commune, mais le conseil municipal ne l’accordera qu’en contrepartie d’une gare à Lantenay, en faisant face à cette dépense, au moyen de coupes de bois.
 
-[![clip_image009](/images/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image009_thumb.gif "clip_image009")](/images/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image009_2.gif)![Tram à la Chenalette 2](/images/Windows-Live-Writer/eeafa2df8a37_F9D6/Tram_a_la_Chenalette_2_thumb.jpg "Tram à la Chenalette 2")
+[![clip_image009](img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image009_thumb.gif "clip_image009")](img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image009_2.gif)![Tram à la Chenalette 2](img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/Tram_a_la_Chenalette_2_thumb.jpg "Tram à la Chenalette 2")
 
 Le 14 novembre 1900, le conseil municipal insiste pour que la ligne du tramway passe par le tunnel de la Chenalette, ce qui diminue le parcours de 4 km et Le Cruchon où il tombe beaucoup de neige et où la circulation serait interrompue pendant au moins 4 mois de l’hiver ainsi que la traversée de la forêt où l’exploitation des bois serait difficile et dangereuse pour le tramway.
 
@@ -86,7 +86,7 @@ Le 12 janvier 1902, après plusieurs types de trajets toujours contestés par la
 
 **Décembre 1907**
 
-[![tunnel en construction](/images/Windows-Live-Writer/eeafa2df8a37_F9D6/tunnel_en_construction_thumb.jpg "tunnel en construction")](/images/Windows-Live-Writer/eeafa2df8a37_F9D6/tunnel_en_construction_2.jpg)[![clip_image014](/images/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image014_thumb.jpg "clip_image014")](/images/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image014_2.jpg)
+[![tunnel en construction](img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/tunnel_en_construction_thumb.jpg "tunnel en construction")](img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/tunnel_en_construction_2.jpg)[![clip_image014](img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image014_thumb.jpg "clip_image014")](img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image014_2.jpg)
 
 Début des travaux de la ligne St Martin du frêne – Brénod avec percement du tunnel de Chaleyriat – la Chenalette. Situé à 900 m d’altitude, ce souterrain mesure exactement 965 m de long. Les équipes de travailleurs au sein desquelles se trouvaient bon nombre de Béguélins et Triolins, s’attelèrent à la besogne de chaque côté de la montagne à la rencontre l’une de l’autre mais elles n’eurent pas les mêmes obstacles à vaincre. Tandis que du côté de Lantenay, les ouvriers tombaient sur du rocher et cela pendant plus de 700 m, à l’opposé du côté de Corcelles, les terrassiers rencontraient d’épaisses couches marneuses remplies de poches d’eau.
 

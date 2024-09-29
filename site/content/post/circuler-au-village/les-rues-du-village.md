@@ -12,13 +12,13 @@ publishedAt: '2011-11-08T13:32:15.000Z'
 
 *Le 8 novembre, 2011, 06 h 20*
 
-[![clip_image002](/images/Windows-Live-Writer/bf69488ed664_F863/clip_image002_thumb.jpg "clip_image002")](/images/Windows-Live-Writer/bf69488ed664_F863/clip_image002_2.jpg)
-[![clip_image004](/images/Windows-Live-Writer/bf69488ed664_F863/clip_image004_thumb.jpg "clip_image004")](/images/Windows-Live-Writer/bf69488ed664_F863/clip_image004_2.jpg)
-[![clip_image006](/images/Windows-Live-Writer/bf69488ed664_F863/clip_image006_thumb.jpg "clip_image006")](/images/Windows-Live-Writer/bf69488ed664_F863/clip_image006_2.jpg)
+[![clip_image002](img/beguelins/Windows-Live-Writer/bf69488ed664_F863/clip_image002_thumb.jpg "clip_image002")](img/beguelins/Windows-Live-Writer/bf69488ed664_F863/clip_image002_2.jpg)
+[![clip_image004](img/beguelins/Windows-Live-Writer/bf69488ed664_F863/clip_image004_thumb.jpg "clip_image004")](img/beguelins/Windows-Live-Writer/bf69488ed664_F863/clip_image004_2.jpg)
+[![clip_image006](img/beguelins/Windows-Live-Writer/bf69488ed664_F863/clip_image006_thumb.jpg "clip_image006")](img/beguelins/Windows-Live-Writer/bf69488ed664_F863/clip_image006_2.jpg)
 
 **Rue des fontaines :** elle traverse le village et doit son nom aux fontaines et bacs qui jalonnent son parcours.
 
-[![clip_image009](/images/Windows-Live-Writer/bf69488ed664_F863/clip_image009_thumb.jpg "clip_image009")](/images/Windows-Live-Writer/bf69488ed664_F863/clip_image009_2.jpg)[![clip_image011](/images/Windows-Live-Writer/bf69488ed664_F863/clip_image011_thumb.jpg "clip_image011")](/images/Windows-Live-Writer/bf69488ed664_F863/clip_image011_2.jpg)
+[![clip_image009](img/beguelins/Windows-Live-Writer/bf69488ed664_F863/clip_image009_thumb.jpg "clip_image009")](img/beguelins/Windows-Live-Writer/bf69488ed664_F863/clip_image009_2.jpg)[![clip_image011](img/beguelins/Windows-Live-Writer/bf69488ed664_F863/clip_image011_thumb.jpg "clip_image011")](/images/Windows-Live-Writer/bf69488ed664_F863/clip_image011_2.jpg)
 
 **Les Montaines :** De l´adjectif latin *montanus, montana*, « de la montagne, montagnard », ou du patronyme *Montain*. De la place du four, la rue monte vers les sapins et dessert le haut du village.
 

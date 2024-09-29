@@ -18,23 +18,23 @@ Dans les pays de montagnes, elles ne commencent que du 15 au 30 juillet. On comm
 
 …Dans les pays de montagne le *fromens*, le seigle, l’orge et l’avoine se moissonnent aussi généralement avec la faucille … on commence à adopter l’usage de faucher, une femme suit immédiatement le faucheur, et range derrière lui le blé qu’il a abattu pour être lié en gerbes. *(Statistiques du Préfet Bossi – 1808)*
 
-[![clip_image002](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image002_thumb.jpg "clip_image002")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image002_2.jpg)[![clip_image004](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_thumb.jpg "clip_image004")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_2.jpg)
+[![clip_image002](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image002_thumb.jpg "clip_image002")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image002_2.jpg)[![clip_image004](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_thumb.jpg "clip_image004")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_2.jpg)
 
 Le Battage
 
 Dans quelques endroits de l’Est du département, on bat dans les granges, mais de suite après la récolte. Ce n’est que dans les montagnes du Bugey que le battage se fait dans les mauvais temps, et pendant l’hiver, à la grange… Le grain nouvellement moissonné, enlevé souvent dans un temps humide ou avec précipitation, par la crainte d’un orage, a besoin d’acquérir dans le gerbier plus de consistance. Là il se gonfle en masse et se perfectionne dans la paille. Celui qui est battu trop promptement se resserre ; il est surpris par le soleil brûlant et par la réverbération du plateau sur lequel il est étendu. Il se dessèche, donne moins de farine et plus de son. *(Statistiques du Préfet Bossi – 1808)*
 
-[![clip_image006](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image006_thumb.jpg "clip_image006")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image006_2.jpg)[![clip_image008](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image008_thumb.jpg "clip_image008")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image008_2.jpg)
+[![clip_image006](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image006_thumb.jpg "clip_image006")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image006_2.jpg)[![clip_image008](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image008_thumb.jpg "clip_image008")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image008_2.jpg)
 
-[![clip_image010](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image010_thumb.jpg "clip_image010")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image010_2.jpg)
+[![clip_image010](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image010_thumb.jpg "clip_image010")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image010_2.jpg)
 
 LES FOINS
 
 « Considérant que la sècheresse détruit les pâturages et que la récolte de foin sera vite épuisée puisque les habitants sont obligés de nourrir le bétail comme s’il n’allait pas aux champs – pour ces motifs le Conseil demande que les habitants soient autorisés à faire paître le bétail dans les bois communaux et prie l’administration forestière d’autoriser ce pâturage pendant le sècheresse. » (*Extrait de délibération du 10 août 1876)*
 
-[![clip_image0024](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image002_4__thumb.jpg "clip_image002[4]")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image002_4_.jpg)[![clip_image0044](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_4__thumb.jpg "clip_image004[4]")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_4_.jpg)
+[![clip_image0024](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image002_4__thumb.jpg "clip_image002[4]")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image002_4_.jpg)[![clip_image0044](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_4__thumb.jpg "clip_image004[4]")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_4_.jpg)
 
-[![clip_image0064](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image006_4__thumb.jpg "clip_image006[4]")](/images/Windows-Live-Writer/85de6aeade0c_139E9/clip_image006_4_.jpg)
+[![clip_image0064](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image006_4__thumb.jpg "clip_image006[4]")](img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image006_4_.jpg)
 
 C’est important le foin, si on veut du bon fromage !
 
