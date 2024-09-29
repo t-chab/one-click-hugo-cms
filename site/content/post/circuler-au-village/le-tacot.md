@@ -6,7 +6,7 @@ coverImage: ''
 title: 'Le tacot'
 status: 'published'
 slug: 'le-tacot'
-description: ''
+description: 'Le tacot'
 publishedAt: '2011-11-15T13:04:22.000Z'
 ---
 

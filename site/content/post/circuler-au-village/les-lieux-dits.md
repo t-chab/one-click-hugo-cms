@@ -6,7 +6,7 @@ coverImage: ''
 title: 'Les lieux dits'
 status: 'published'
 slug: 'les-lieux-dits'
-description: ''
+description: 'Les lieux dits'
 publishedAt: '2011-11-09T13:06:56.000Z'
 ---
 

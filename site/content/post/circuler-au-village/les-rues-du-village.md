@@ -5,7 +5,7 @@ author:
   name: 'geneb'
   picture: ''
 slug: 'les-rues-du-village'
-description: ''
+description: 'Les rues du village'
 coverImage: ''
 publishedAt: '2011-11-08T13:32:15.000Z'
 ---
