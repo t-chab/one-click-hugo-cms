@@ -1,13 +1,14 @@
 ---
-title: 'CARTES POSTALES ET VUES DU CIEL'
-status: 'published'
+publishedAt: 2024-04-16T15:49:46.303Z
+coverImage: ""
 author:
-  name: 'geneb'
-  picture: ''
-slug: 'cartes-postales-et-vues-du-ciel'
-description: ''
-coverImage: ''
-publishedAt: '2024-04-16T15:49:46.303Z'
+  name: geneb
+  picture: ""
+slug: cartes-postales-et-vues-du-ciel
+date: 2024-09-29T13:48:00.000Z
+status: published
+title: CARTES POSTALES ET VUES DU CIEL
+description: Cartes postales et vues du ciel
 ---
 
 *le 22 novembre 2011, 06 h 29*
