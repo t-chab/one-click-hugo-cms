@@ -28,4 +28,4 @@ http://henrysuter.ch/glossaires/topo-ind4.html
 
 Les noms de lieux de l’Ain laissent apparaitre aussi tout un vocabulaire gaulois, témoin de la vie et des préoccupations de nos ancêtres : *lan* « plateau » dans Lantenay village construit sur un plateau – ou sont dérivés de noms de personnes gallo-romaine : L*entenai*, 1305, peut être un dérivé du nom de personne *Lentinius/Lantinius.*
 
-![](img/beguelins/Windows-Live-Writer/495173d45c60_FCF4/numerisation0001_2.jpg)
+![](/img/beguelins/Windows-Live-Writer/495173d45c60_FCF4/numerisation0001_2.jpg)

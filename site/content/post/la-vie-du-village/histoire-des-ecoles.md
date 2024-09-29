@@ -12,7 +12,7 @@ publishedAt: '2011-11-17T13:26:07.000Z'
 
 *Le 17 novembre 2011, 07 h 03*
 
-[![clip_image002](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image002_thumb.jpg "clip_image002")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image002_2.jpg) [![clip_image004](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image004_thumb.jpg "clip_image004")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image004_2.jpg)
+[![clip_image002](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image002_thumb.jpg "clip_image002")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image002_2.jpg) [![clip_image004](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image004_thumb.jpg "clip_image004")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image004_2.jpg)
 
 ***Classe des filles et des garçons dans les années 1900***
 
@@ -26,7 +26,7 @@ En **1836**, don par l’abbé Joseph Mermod, d’un bâtiment de 6 mètres par 
 
 L’école est autorisée en **1859**, Sœur Ernestine est la supérieure de l’école de filles de la congrégation de St Joseph de Bourg. Elle sera fermée en **1898.**
 
-[![clip_image006](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image006_thumb.jpg "clip_image006")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image006_2.jpg)
+[![clip_image006](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image006_thumb.jpg "clip_image006")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image006_2.jpg)
 
 ***En 1902***
 
@@ -34,15 +34,15 @@ En **1852**, l’école est déclarée « communale » et la commune rétribue l
 
 En **1862**, pour faciliter l’accès à l’école des enfants du hameau d’Outriaz, il a été voté un crédit pour construire **un pont entre Lantenay et Outriaz**.
 
-[![clip_image008](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image008_thumb.jpg "clip_image008")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image008_2.jpg)
+[![clip_image008](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image008_thumb.jpg "clip_image008")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image008_2.jpg)
 
 La commune achète des **fusils en bois** en 1884, pour armer le bataillon scolaire. Ces bataillons sont créés en 1882 pour rassembler les garçons de 12 ans et plus, pour des exercices militaires.
 
-[![clip_image012](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image012_thumb.jpg "clip_image012")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image012_2.jpg)
+[![clip_image012](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image012_thumb.jpg "clip_image012")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image012_2.jpg)
 
 En 1882 le **certificat d’études primaires** est institué par la loi Jules Ferry du 28 mars 1882, qui rend **l'instruction primaire obligatoire de 6 à 13 ans** :
 
-[![numérisation0007](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/numerisation0007_thumb.jpg "numérisation0007")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/numerisation0007_2.jpg)
+[![numérisation0007](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/numerisation0007_thumb.jpg "numérisation0007")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/numerisation0007_2.jpg)
 
 **« *Il est institué un certificat d'études primaires ; il est décerné après un examen public auquel pourront se présenter les enfants dès l'âge de onze ans. Ceux qui, à partir de cet âge, auront obtenu le certificat d'études primaires, seront dispensés du temps de scolarité obligatoire qui leur restait à passer.* »**
 
@@ -56,42 +56,42 @@ Nous sommes donc dans une salle de classe, quelque part dans la France rurale, l
 
 **Emploi du temps dans les années 1940** :
 
-[![clip_image016](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image016_thumb.jpg "clip_image016")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image016_2.jpg)
+[![clip_image016](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image016_thumb.jpg "clip_image016")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image016_2.jpg)
 
-[![clip_image018](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image018_thumb.jpg "clip_image018")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image018_2.jpg)[![clip_image020](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image020_thumb.jpg "clip_image020")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image020_2.jpg)
+[![clip_image018](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image018_thumb.jpg "clip_image018")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image018_2.jpg)[![clip_image020](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image020_thumb.jpg "clip_image020")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image020_2.jpg)
 
 ***Livre de morale – 1937***
 
-[![clip_image022](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image022_thumb.jpg "clip_image022")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image022_2.jpg)
+[![clip_image022](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image022_thumb.jpg "clip_image022")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image022_2.jpg)
 
 **Les écoliers de Lantenay en 1930**
 
-[![numérisation0012](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/numerisation0012_thumb.jpg "numérisation0012")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/numerisation0012_2.jpg)
+[![numérisation0012](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/numerisation0012_thumb.jpg "numérisation0012")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/numerisation0012_2.jpg)
 
-[![clip_image024](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image024_thumb.jpg "clip_image024")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image024_2.jpg)
+[![clip_image024](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image024_thumb.jpg "clip_image024")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image024_2.jpg)
 
-[![clip_image028](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image028_thumb.jpg "clip_image028")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image028_2.jpg)
+[![clip_image028](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image028_thumb.jpg "clip_image028")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image028_2.jpg)
 
-[![clip_image030](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image030_thumb.jpg "clip_image030")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image030_2.jpg)
+[![clip_image030](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image030_thumb.jpg "clip_image030")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image030_2.jpg)
 
 ***Nouveau cours d’arithmétique - 1935***
 
-[![clip_image032](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image032_thumb.jpg "clip_image032")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image032_2.jpg)
+[![clip_image032](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image032_thumb.jpg "clip_image032")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image032_2.jpg)
 
 ***Sciences physiques et* *naturelles – 1921***
 
-[![clip_image040](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image040_thumb.jpg "clip_image040")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image040_2.jpg)[![clip_image036](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image036_thumb.jpg "clip_image036")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image036_2.jpg)
+[![clip_image040](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image040_thumb.jpg "clip_image040")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image040_2.jpg)[![clip_image036](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image036_thumb.jpg "clip_image036")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image036_2.jpg)
 
 - Classe unique mixte en 1938
 - Puis 2 classes de 1958 jusqu’en 1964.
 
-[![clip_image034](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image034_thumb.jpg "clip_image034")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image034_2.jpg) [![Classe en 1958](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/Classe_en_1958_thumb.jpg "Classe en 1958")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/Classe_en_1958_2.jpg)
+[![clip_image034](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image034_thumb.jpg "clip_image034")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image034_2.jpg) [![Classe en 1958](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/Classe_en_1958_thumb.jpg "Classe en 1958")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/Classe_en_1958_2.jpg)
 
 **Classe début années 1950    Classe de Mr Allombert**
 
 **(1958)**
 
-[![clip_image042](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image042_thumb.gif "clip_image042")](img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image042_2.gif)
+[![clip_image042](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image042_thumb.gif "clip_image042")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image042_2.gif)
 
 **La classe unique de Mr Pélisson en 1969**
 
