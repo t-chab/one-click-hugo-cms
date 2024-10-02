@@ -30,27 +30,37 @@ publishedAt: '2011-11-17T13:28:13.000Z'
 
 **Les pompiers et le conseil municipal** (années 1920…)
 
-[![clip_image008](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image008_thumb.jpg "clip_image008")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image008_2.jpg)
+![clip_image008](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image008_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image008_2.jpg)
 
 **1936**
 
-[**![numérisation0005](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/numerisation0005_thumb.jpg "numérisation0005")**](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/numerisation0005_2.jpg)
+![numérisation0005](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/numerisation0005_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/numerisation0005_2.jpg)
 
-[![clip_image010](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image010_thumb.gif "clip_image010")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image010_2.gif)[![numérisation0006](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/numerisation0006_thumb.jpg "numérisation0006")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/numerisation0006_2.jpg)
+![clip_image010](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image010_thumb.gif)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image010_2.gif)
 
-[![clip_image016](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image016_thumb.jpg "clip_image016")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image016_2.jpg)
+![numérisation0006](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/numerisation0006_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/numerisation0006_2.jpg)
+
+![clip_image016](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image016_thumb.jpg "clip_image016")
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image016_2.jpg)
 
 **1970**
 
-[![clip_image014](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image014_thumb.jpg "clip_image014")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image014_2.jpg)
+![clip_image014](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image014_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image014_2.jpg)
 
 **1995**
 
-[![clip_image018](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image018_thumb.jpg "clip_image018")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image018_2.jpg)
+![clip_image018](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image018_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image018_2.jpg)
 
 **2007**
 
-[![clip_image020](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image020_thumb.jpg "clip_image020")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image020_2.jpg)
+![clip_image020](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image020_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image020_2.jpg)
 
 **2009**
 
@@ -62,34 +72,60 @@ publishedAt: '2011-11-17T13:28:13.000Z'
 
 ![clip_image028](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image028_thumb.gif "clip_image028")
 
-[![clip_image030](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image030_thumb.jpg "clip_image030")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image030_2.jpg)[![clip_image026](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image026_thumb.gif "clip_image026")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image026_2.gif)
+![clip_image030](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image030_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image030_2.jpg)
+
+![clip_image026](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image026_thumb.gif)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image026_2.gif)
 
 Vie quotidienne et fêtes
 
-[![clip_image024](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image024_thumb.jpg "clip_image024")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image024_2.jpg)
+![clip_image024](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image024_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image024_2.jpg)
 
-[![clip_image036](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image036_thumb.jpg "clip_image036") ](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image036_2.jpg)[*![clip_image032](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image032_thumb.gif "clip_image032")*](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image032_2.gif)
+![clip_image036](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image036_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image036_2.jpg)
+
+![clip_image032](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image032_thumb.gif)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image032_2.gif)
 
 ***1951***
 
-[![clip_image034](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image034_thumb.gif "clip_image034")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image034_2.gif)
+![clip_image034](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image034_thumb.gif)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image034_2.gif)
 
-[![clip_image040](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image040_thumb.jpg "clip_image040")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image040_2.jpg)
+![clip_image040](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image040_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image040_2.jpg)
 
 *Famille Julliard Pélisson Gordon 1923*
 
-[![clip_image038](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image038_thumb.jpg "clip_image038")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image038_2.jpg)
+![clip_image038](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image038_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image038_2.jpg)
 
 *Mariage Pélisson Sève - 1927*
 
 Mon grand père né en 1885, disait : *« Vous ne verrez jamais autant de progrès techniques que moi, j’ai vu les premiers trains, les premières voitures, les avions, l’eau à la maison, l’électricité, la télévision, le téléphone… »*
 
-[![clip_image046](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image046_thumb.jpg "clip_image046")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image046_2.jpg)[![clip_image042](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image042_thumb.gif "clip_image042")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image042_2.gif)
+![clip_image046](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image046_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image046_2.jpg)
 
-[![clip_image050](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image050_thumb.jpg "clip_image050")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image050_2.jpg)
+![clip_image042](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image042_thumb.gif)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image042_2.gif)
 
-[![clip_image044](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image044_thumb.jpg "clip_image044")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image044_2.jpg)[![clip_image048](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image048_thumb.gif "clip_image048")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image048_2.gif)
+![clip_image050](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image050_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image050_2.jpg)
 
-[![clip_image054](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image054_thumb.jpg "clip_image054")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image054_2.jpg)
+![clip_image044](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image044_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image044_2.jpg)
 
-[![clip_image052](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image052_thumb.gif "clip_image052")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image052_2.gif)[![clip_image056](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image056_thumb.gif "clip_image056")](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image056_2.gif)
+![clip_image048](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image048_thumb.gif)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image048_2.gif)
+
+![clip_image054](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image054_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image054_2.jpg)
+
+![clip_image052](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image052_thumb.gif)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image052_2.gif)
+
+![clip_image056](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image056_thumb.gif)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image056_2.gif)
