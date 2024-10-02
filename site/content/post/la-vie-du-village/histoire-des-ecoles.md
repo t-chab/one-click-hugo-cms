@@ -12,7 +12,11 @@ publishedAt: '2011-11-17T13:26:07.000Z'
 
 *Le 17 novembre 2011, 07 h 03*
 
-[![clip_image002](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image002_thumb.jpg "clip_image002")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image002_2.jpg) [![clip_image004](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image004_thumb.jpg "clip_image004")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image004_2.jpg)
+![](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image002_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image002_2.jpg)
+
+![](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image004_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image004_2.jpg)
 
 ***Classe des filles et des garçons dans les années 1900***
 
@@ -26,7 +30,8 @@ En **1836**, don par l’abbé Joseph Mermod, d’un bâtiment de 6 mètres par 
 
 L’école est autorisée en **1859**, Sœur Ernestine est la supérieure de l’école de filles de la congrégation de St Joseph de Bourg. Elle sera fermée en **1898.**
 
-[![clip_image006](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image006_thumb.jpg "clip_image006")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image006_2.jpg)
+![](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image006_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image006_2.jpg)
 
 ***En 1902***
 
@@ -34,7 +39,8 @@ En **1852**, l’école est déclarée « communale » et la commune rétribue l
 
 En **1862**, pour faciliter l’accès à l’école des enfants du hameau d’Outriaz, il a été voté un crédit pour construire **un pont entre Lantenay et Outriaz**.
 
-[![clip_image008](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image008_thumb.jpg "clip_image008")](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image008_2.jpg)
+![](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image008_thumb.jpg)
+![](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image008_2.jpg)
 
 La commune achète des **fusils en bois** en 1884, pour armer le bataillon scolaire. Ces bataillons sont créés en 1882 pour rassembler les garçons de 12 ans et plus, pour des exercices militaires.
 
