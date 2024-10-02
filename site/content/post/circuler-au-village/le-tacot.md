@@ -28,7 +28,7 @@ Il fallu trois ans aux gens de Corcelles pour rencontrer ceux de Lantenay et dé
 
 On vous fait grâce de la pose du plus de 30 kilomètres de voir ferrée avec aiguillages et voies de garage, un travail titanesque tout fait à mains d’hommes.
 
-Enfin le 1ere avril 1912, la première locomotive partie de Nantua tirant 4 wagons et garnie de drapeaux traversait la vallée, les curieux étaient nombreux à Lantenay où l’on doutait encore qu’elle puisse grimper la rude côte de Chaleyriat.
+Enfin le 1er avril 1912, la première locomotive partie de Nantua tirant 4 wagons et garnie de drapeaux traversait la vallée, les curieux étaient nombreux à Lantenay où l’on doutait encore qu’elle puisse grimper la rude côte de Chaleyriat.
 
 Tout se passa le mieux du monde et la sortie du tunnel fut un triomphe pour les gens du Plateau.
 
@@ -66,13 +66,15 @@ En 1856, le premier chemin de fer est implanté dans l’Ain.
 
 A Lantenay, tout commence en 1897, alors que le premier réseau n’est pas encore achevé, le Conseil Général décide de donner satisfaction aux élus et aux populations concernées et pour cela de créer le deuxième réseau, dont la ligne Cerdon Ruffieu en passant par Saint Martin du frêne.
 
-[![numérisation0003](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0003_thumb.jpg "numérisation0003")](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0003_2.jpg)
+![numérisation0003](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0003_thumb.jpg)]
+![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0003_2.jpg)
 
 Par la suite, le Conseil Municipal de Lantenay étudie l’avant projet d’une ligne Ruffieu – La Cluse passant par le col de la Lèbe – Cormaranche – Hauteville – La Grange Goyet (commune de Corcelles) et la Combe du Val.
 
 Il propose cependant le tracé par le col de Jalinard – Brénod – Le Cruchon et la Combe du Val.
 
-[![gare 1](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/gare_1_thumb.jpg "gare 1")](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/gare_1_2.jpg)
+![gare 1](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/gare_1_thumb.jpg "gare 1")]
+![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/gare_1_2.jpg)
 
 En 1899, le préfet demande une subvention de 6 000 francs à la commune, mais le conseil municipal ne l’accordera qu’en contrepartie d’une gare à Lantenay, en faisant face à cette dépense, au moyen de coupes de bois.
 
@@ -115,7 +117,7 @@ Le percement a duré 3 ans… Puis vint l’établissement de la voie de 1909 à
 
 En 1928, le conseil municipal décide la construction **du pont du Terray** pour la somme de 72 000 francs. Celui-ci a constitué l’unique passage supérieur du réseau.
 
-[![clip_image022](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image022_thumb.jpg)
+![clip_image022](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image022_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image022_2.jpg)
 ![clip_image024](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image024_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image024_2.jpg)
@@ -282,7 +284,7 @@ Que la route soit ouverte, en hiver, et favorable en toutes saisons !
 
 *Echo paroissial – juillet 1954*
 
-[![clip_image0224](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image022_4__thumb.jpg)
+![clip_image0224](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image022_4__thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image022_4_.jpg)
 ![clip_image020](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image020_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image020_2.jpg)
