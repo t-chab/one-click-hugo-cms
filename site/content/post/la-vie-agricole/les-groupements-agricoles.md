@@ -16,10 +16,8 @@ Le 13 novembre 2011, 11 h 37
 
 (**C**oopérative d’**U**tilisation du **M**atériel **A**gricole)
 
-![clip_image004](/img/beguelins/Windows-Live-Writer/97d350d174e5_14A3C/clip_image004_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/97d350d174e5_14A3C/clip_image004_2.jpg)
 
-![clip_image002](/img/beguelins/Windows-Live-Writer/97d350d174e5_14A3C/clip_image002_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/97d350d174e5_14A3C/clip_image002_2.jpg)
 
 **En 1958**: 28 cultivateurs adhérent (18 de Lantenay et 10 d’Outriaz) pour l’achat d’une moissonneuse batteuse.
@@ -30,10 +28,8 @@ Le 13 novembre 2011, 11 h 37
 
 ![](/img/beguelins/Windows-Live-Writer/97d350d174e5_14A3C/clip_image006_2.jpg)
 
-![clip_image008](/img/beguelins/Windows-Live-Writer/97d350d174e5_14A3C/clip_image008_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/97d350d174e5_14A3C/clip_image008_2.jpg)
 
-![clip_image006](/img/beguelins/Windows-Live-Writer/97d350d174e5_14A3C/clip_image006_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/97d350d174e5_14A3C/clip_image006_2.jpg)
 
 **LA SICA**
@@ -44,10 +40,8 @@ Elle a pour objet de créer ou de gérer des installations et équipements ou d�
 
 Dans les années 60/70 à Lantenay les pâturages collectifs accueillaient les génisses, pleines ou non, mais vaccinées contre la brucellose.
 
-![clip_image010](/img/beguelins/Windows-Live-Writer/97d350d174e5_14A3C/clip_image010_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/97d350d174e5_14A3C/clip_image010_2.jpg)
 
-![clip_image012](/img/beguelins/Windows-Live-Writer/97d350d174e5_14A3C/clip_image012_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/97d350d174e5_14A3C/clip_image012_2.jpg)
 
 Une trentaine de bêtes se partageaient l’herbe sous les Queues ou en Chaleyriat.

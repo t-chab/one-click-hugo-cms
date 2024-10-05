@@ -24,12 +24,10 @@ Les initiateurs de cette réunion trouvant le résultat insuffisant… ont préf
 
 **Hiver 1966/1967. Démarrage** du « vrai » travail de remembrement.
 
-![clip_image002](/img/beguelins/Windows-Live-Writer/LE-REMEMBREMENT_13F6F/clip_image002_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/LE-REMEMBREMENT_13F6F/clip_image002_2.jpg)
 
 *Propriété avant remembrement*
 
-![clip_image004](/img/beguelins/Windows-Live-Writer/LE-REMEMBREMENT_13F6F/clip_image004_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/LE-REMEMBREMENT_13F6F/clip_image004_2.jpg)
 
 * Propriété après remembrement*
