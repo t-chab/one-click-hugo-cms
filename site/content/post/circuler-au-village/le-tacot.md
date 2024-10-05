@@ -1,13 +1,14 @@
 ---
+publishedAt: 2011-11-15T13:04:22.000Z
+coverImage: ""
 author:
-  name: 'geneb'
-  picture: 'https://avatars.githubusercontent.com/u/2120966?v=4'
-coverImage: ''
-title: 'Le tacot'
-status: 'published'
-slug: 'le-tacot'
-description: 'Le tacot'
-publishedAt: '2011-11-15T13:04:22.000Z'
+  name: geneb
+  picture: https://avatars.githubusercontent.com/u/2120966?v=4
+slug: le-tacot
+date: 2011-11-15T06:33:00.000Z
+status: published
+title: Le tacot
+description: Le tacot
 ---
 
 le 15 novembre, 2011, 06h33
