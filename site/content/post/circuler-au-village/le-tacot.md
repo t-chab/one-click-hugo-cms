@@ -66,19 +66,16 @@ En 1856, le premier chemin de fer est implanté dans l’Ain.
 
 A Lantenay, tout commence en 1897, alors que le premier réseau n’est pas encore achevé, le Conseil Général décide de donner satisfaction aux élus et aux populations concernées et pour cela de créer le deuxième réseau, dont la ligne Cerdon Ruffieu en passant par Saint Martin du frêne.
 
-![numérisation0003](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0003_thumb.jpg)]
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0003_2.jpg)
 
 Par la suite, le Conseil Municipal de Lantenay étudie l’avant projet d’une ligne Ruffieu – La Cluse passant par le col de la Lèbe – Cormaranche – Hauteville – La Grange Goyet (commune de Corcelles) et la Combe du Val.
 
 Il propose cependant le tracé par le col de Jalinard – Brénod – Le Cruchon et la Combe du Val.
 
-![gare 1](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/gare_1_thumb.jpg "gare 1")]
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/gare_1_2.jpg)
 
 En 1899, le préfet demande une subvention de 6 000 francs à la commune, mais le conseil municipal ne l’accordera qu’en contrepartie d’une gare à Lantenay, en faisant face à cette dépense, au moyen de coupes de bois.
 
-![clip_image009](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image009_thumb.gif)]
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image009_2.gif)
 ![Tram à la Chenalette 2](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/Tram_a_la_Chenalette_2_thumb.jpg)
 
@@ -90,9 +87,8 @@ Le 12 janvier 1902, après plusieurs types de trajets toujours contestés par la
 
 **Décembre 1907**
 
-![tunnel en construction](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/tunnel_en_construction_thumb.jpg)
-![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/tunnel_en_construction_2.jpg)
-![clip_image014](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image014_thumb.jpg)
+![tunnel en construction](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/tunnel_en_construction_2.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image014_2.jpg)
 
 Début des travaux de la ligne St Martin du frêne – Brénod avec percement du tunnel de Chaleyriat – la Chenalette. Situé à 900 m d’altitude, ce souterrain mesure exactement 965 m de long. Les équipes de travailleurs au sein desquelles se trouvaient bon nombre de Béguélins et Triolins, s’attelèrent à la besogne de chaque côté de la montagne à la rencontre l’une de l’autre mais elles n’eurent pas les mêmes obstacles à vaincre. Tandis que du côté de Lantenay, les ouvriers tombaient sur du rocher et cela pendant plus de 700 m, à l’opposé du côté de Corcelles, les terrassiers rencontraient d’épaisses couches marneuses remplies de poches d’eau.
@@ -103,9 +99,8 @@ Le percement a duré 3 ans… Puis vint l’établissement de la voie de 1909 à
 
 **La fin des travaux et l’ouverture au trafic se feront en mars 1912.**
 
-![gare 3](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/gare_3_thumb.jpg)
-![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/gare_3_2.jpg)
-![clip_image018](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image018_thumb.gif)
+![gare](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/gare_3_2.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image018_2.gif)
 
 **Ouverture au trafic**
@@ -117,30 +112,26 @@ Le percement a duré 3 ans… Puis vint l’établissement de la voie de 1909 à
 
 En 1928, le conseil municipal décide la construction **du pont du Terray** pour la somme de 72 000 francs. Celui-ci a constitué l’unique passage supérieur du réseau.
 
-![clip_image022](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image022_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image022_2.jpg)
-![clip_image024](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image024_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image024_2.jpg)
 
 **Mai 1933 : la ligne est électrifiée**
 
-![img360](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/img360_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/img360_2.jpg)
-![numérisation0008](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0008_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0008_2.jpg)
 
 *« … victime du progrès, il fallut dire adieu à ce bon vieux tacot. On abaissa le sol du tunnel, on planta tous les cinquante mètres d’énormes poteaux en ciment armé… »*
 
 Les locomotives à vapeur sont remplacées par des tracteurs et automotrices électriques, qui portaient des noms évocateurs : les premiers furent baptisés : l’Oignin, l’Ain et la Valserine.
 
-![numérisation0004](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0004_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/numerisation0004_2.jpg)
-![Image27](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/Image27_thumb.png)
+
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/Image27_2.png)
 
 Les deuxièmes des noms des sommets : le Colombier, l’Avocat, le Credo, la Faucille, le Crêt de la neige et le Reculet. Cette dernière voiture possédait une suspension plus souple que les autres, ce qui la fit dérailler sur la commune en 1936 peu après sa mise en service.
 
-![clip_image034](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image034_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image034_2.jpg)
 
 **Fermeture définitive de ligne du tramway**
@@ -151,19 +142,16 @@ En 1952, en dépit des déclarations officielles, les résultats d’exploitatio
 
 Cela entraîna une vive polémique avec les élus de la région.
 
-![clip_image036](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image036_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image036_2.jpg)
 
 La fermeture définitive de la ligne eu lieu le 22 mai 1954, beaucoup d’émotion pour les gens du village au passage du dernier train. Le matériel roulant fut ferraillé ainsi que le matériel électrique et la voie rapidement déposée.
 
 Aujourd’hui, le tracé de la voie du tram reliant l’entrée du village de Lantenay jusqu’au tunnel de Chaleyriat est apprécié par les randonneurs.
 
-![clip_image040](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image040_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image040_2.jpg)
 
 *Plaque en contre bas de la Poste.*
 
-![clip_image038](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image038_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image038_2.jpg)
 
 *L’entrée du tunnel est fermée pour risques d’éboulements.*
@@ -197,9 +185,8 @@ Parlons donc encore un peu de lui.
 
 Et pour être sûr de le bien faire, nous allons interviewer à son sujet l’homme le plus qualifié pour en parler chez nous, Mr Simon Balland, poseur en chef de notre ligne, maintenant retraité, et qui a passé les meilleures années de sa vie, au service et à l’entretien de cet important tronçon des Tramways de l’Ain. Il l’a vu naitre et mourir : il peut en parler avec sureté.
 
-![clip_image004](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image004_thumb.jpg )
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image004_2.jpg)
-![clip_image006](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image006_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image006_2.jpg)
 
 \- La ligne Nantua-Hauteville, nous dit-il, a commencé en nos parages, dès 1907 par l’ouverture du tunnel de la Chenalette. Situé à 900 mètres d’altitude, ce souterrain mesure exactement 965 mètres de longueur… Les deux équipes de travailleurs (au sein desquelles se trouvaient bon nombre de Béguèlins et de Triolins) s’attelèrent à la besogne de chaque côté de la montagne à la rencontre l’une de l’autre, mais elles n’eurent pas les mêmes obstacles à vaincre.
@@ -225,7 +212,6 @@ Et pour être sûr de le bien faire, nous allons interviewer à son sujet l’ho
 
 La vieille diligence qui, de Brénod, portait le courrier à La Cluse, par Meyriat, était vaincue ! Bientôt le tramway eut son wagon postal et un postier roulant… Quel progrès !
 
-![clip_image010](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image010_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image010_2.jpg)
 
 Mr Balland me rappelle qu’à cette époque, les gens n’étaient pas si difficiles que maintenant…
@@ -247,7 +233,6 @@ Pendant que la locomotive s’abreuvait, on avait le loisir d’aller cueillir d
 
 Nantua-Hauteville, par le rail, ah ! Oui, c’était un beau voyage, surtout quand le trajet s’allongeait de beaucoup de voies de garage où nous promenait la machine en quête de wagons ou désireuse d’en laisser… Et puis, lorsqu’arrivait l’imprévu d’un luisant verglas, et que le sable était épuisé dans sa soute, la machine patinait au sommet d’une montée… et qu’on redescendait tout doucettement, à reculons, sur un ou deux kilomètres pour reprendre de l’élan… ça alors, c’était du luxe !...
 
-![Image27](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/Image27_thumb_1.png)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/Image27_4.png)
 
 On était au beau temps où le voyage Brénod-La Cluse, avec toutes ces variétés, coûtait 0fr.65 centimes, en seconde, et 0fr.95 en première… Et l’on fonçait au moins à 18 à l’heure !
@@ -271,7 +256,6 @@ En tout cas, si jamais la douceur des cars chaussés de caoutchouc arrivait à n
 
 Et ne faut-il pas, en terminant, rendre un hommage mérité aux receveuses de nos gares d’Outriaz et de Lantenay pour leur accueil souriant aux guichets, durant de longues années, Mme Célina Cottet et Clémentine Besson, sans oublier Mlle Marguerite Vellas, qui de jour et de nuit a été la providence des voyageurs présents, passés et futurs de la ligne Nantua-Hauteville…
 
-![clip_image018](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image018_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image018_2.jpg)
 
 Oui, à tous et toutes, notre merci, avec le bouquet qui ne se fane pas : celui de la reconnaissance.
@@ -284,8 +268,7 @@ Que la route soit ouverte, en hiver, et favorable en toutes saisons !
 
 *Echo paroissial – juillet 1954*
 
-![clip_image0224](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image022_4__thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image022_4_.jpg)
-![clip_image020](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image020_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image020_2.jpg)
 
