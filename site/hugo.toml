@@ -2,7 +2,8 @@ baseurl = "/"
 languageCode = "fr-fr"
 languageLang = "fr"
 title = "Beguelins.net"
-disableKinds = ["RSS", "taxonomy", "taxonomyTerm"]
+disableKinds = ["RSS", "taxonomy"]
 
 [params]
 images = []
+theme = ["github.com/theNewDynamic/gohugo-theme-ananke"]
