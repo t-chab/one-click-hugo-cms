@@ -7,7 +7,7 @@ title: 'Les lieux dits'
 status: 'published'
 slug: 'les-lieux-dits'
 description: 'Les lieux dits'
-publishedAt: '2011-11-09T13:06:56.000Z'
+publishedAt: 2011-11-09T13:06:56.000Z
 ---
 
 Le 9 novembre, 2011, 06 h 17
