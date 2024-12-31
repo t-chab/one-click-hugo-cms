@@ -8,7 +8,7 @@ slug: 'la-vie-paroissiale'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-15T13:46:43.000Z'
-date: '2011-11-15T13:46:43.000Z'
+date: 2011-11-15T13:46:43.000Z
 ---
 
 Le 15 novembre, 2011, 09 h 37
