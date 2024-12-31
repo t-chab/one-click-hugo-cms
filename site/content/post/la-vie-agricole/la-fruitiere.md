@@ -8,7 +8,7 @@ slug: 'la-fruitiere'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-13T13:39:09.000Z'
-date: '2011-11-13T13:39:09.000Z'
+date: 2011-11-13T13:39:09.000Z
 ---
 
 Le 13 novembre 2011, 11 h 21

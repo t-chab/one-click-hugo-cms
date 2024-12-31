@@ -8,7 +8,7 @@ slug: 'les-sires-de-lantenay'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-08T16:51:53.000Z'
-date: '2011-11-08T16:51:53.000Z'
+date: 2011-11-08T16:51:53.000Z
 ---
 
 *Le 8 novembre 2011, 12 h 31*

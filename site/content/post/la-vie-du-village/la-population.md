@@ -8,7 +8,7 @@ slug: 'la-population'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-14T13:44:51.000Z'
-date: '2011-11-14T13:44:51.000Z'
+date: 2011-11-14T13:44:51.000Z
 ---
 
 *Le 14 novembre 2011, 09 h 09*

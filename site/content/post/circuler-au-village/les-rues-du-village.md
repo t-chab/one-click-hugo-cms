@@ -8,7 +8,7 @@ slug: 'les-rues-du-village'
 description: 'Les rues du village'
 coverImage: ''
 publishedAt: '2011-11-08T13:32:15.000Z'
-date: '2011-11-08T13:32:15.000Z'
+date: 2011-11-08T13:32:15.000Z
 ---
 
 *Le 8 novembre, 2011, 06 h 20*

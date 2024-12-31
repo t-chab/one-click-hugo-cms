@@ -8,7 +8,7 @@ slug: 'la-fete-du-four'
 description: ''
 coverImage: ''
 publishedAt: '2014-09-23T12:55:15.000Z'
-date: '2014-09-23T12:55:15.000Z'
+date: 2014-09-23T12:55:15.000Z
 ---
 
 Le 23 septembre 2014, 03 h 17

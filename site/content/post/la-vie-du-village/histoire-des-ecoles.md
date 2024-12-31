@@ -8,7 +8,7 @@ slug: 'histoire-des-ecoles'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-17T13:26:07.000Z'
-date: '2011-11-17T13:26:07.000Z'
+date: 2011-11-17T13:26:07.000Z
 ---
 
 *Le 17 novembre 2011, 07 h 03*

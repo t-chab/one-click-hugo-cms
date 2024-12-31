@@ -8,7 +8,7 @@ slug: 'que-la-lumiere-soit'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-22T13:42:25.000Z'
-date: '2011-11-22T13:42:25.000Z'
+date: 2011-11-22T13:42:25.000Z
 ---
 
 Le 22 novembre, 2011, 04 h 21 

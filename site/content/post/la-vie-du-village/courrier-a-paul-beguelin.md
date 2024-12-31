@@ -8,7 +8,7 @@ slug: 'courrier-a-paul-beguelin'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-10T13:48:31.000Z'
-date: '2011-11-10T13:48:31.000Z'
+date: 2011-11-10T13:48:31.000Z
 ---
 
 Le 10 novembre 2011, 03 h 33

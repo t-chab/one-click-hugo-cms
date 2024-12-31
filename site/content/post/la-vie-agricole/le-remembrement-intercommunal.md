@@ -8,7 +8,7 @@ slug: 'le-remembrement-intercommunal'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-13T16:59:36.000Z'
-date: '2011-11-13T16:59:36.000Z'
+date: 2011-11-13T16:59:36.000Z
 ---
 
 Le 13 novembre 2011, 10 h 45

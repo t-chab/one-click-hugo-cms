@@ -8,7 +8,7 @@ status: 'published'
 slug: 'il-etait-une-fois-lantenay-et-outriaz'
 description: ''
 publishedAt: '2011-11-08T16:55:24.000Z'
-date: '2011-11-08T16:55:24.000Z'
+date: 2011-11-08T16:55:24.000Z
 ---
 
 Le 8 novembre 2011, 10 h 40

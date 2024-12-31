@@ -8,7 +8,7 @@ slug: 'recherches-petrolieres'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-22T13:34:01.000Z'
-date: '2011-11-22T13:34:01.000Z'
+date: 2011-11-22T13:34:01.000Z
 ---
 
 Le 22 novembre, 2011, 05 h 43

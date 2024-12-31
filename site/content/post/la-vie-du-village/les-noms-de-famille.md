@@ -8,7 +8,7 @@ slug: 'les-noms-de-famille'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-08T13:50:23.000Z'
-date: '2011-11-08T13:50:23.000Z'
+date: 2011-11-08T13:50:23.000Z
 ---
 
 *Le 8 novembre, 2011, 02 h 41*

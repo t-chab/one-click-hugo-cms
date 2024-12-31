@@ -8,7 +8,7 @@ slug: 'les-groupements-agricoles'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-13T16:57:58.000Z'
-date: '2011-11-13T16:57:58.000Z'
+date: 2011-11-13T16:57:58.000Z
 ---
 
 Le 13 novembre 2011, 11 h 37

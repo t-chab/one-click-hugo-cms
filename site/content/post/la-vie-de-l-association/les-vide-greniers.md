@@ -8,7 +8,7 @@ slug: 'les-vide-greniers'
 description: ''
 coverImage: ''
 publishedAt: '2015-06-11T12:52:52.000Z'
-date: '2015-06-11T12:52:52.000Z'
+date: 2015-06-11T12:52:52.000Z
 ---
 
 Le 11 juin, 2015, 04 h 21
