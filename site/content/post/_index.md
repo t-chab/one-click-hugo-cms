@@ -1,4 +1,0 @@
----
-title: "Main content index"
----
-
