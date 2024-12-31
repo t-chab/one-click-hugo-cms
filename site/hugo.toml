@@ -2,7 +2,7 @@ baseurl = "/"
 languageCode = "fr-fr"
 languageLang = "fr"
 title = "Beguelins.net"
-disableKinds = ["RSS", "taxonomy"]
+disableKinds = ["RSS", "taxonomy", "term"]
 
 [params]
 images = []
