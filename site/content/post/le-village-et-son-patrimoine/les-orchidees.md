@@ -8,6 +8,7 @@ slug: 'les-orchidees'
 description: ''
 coverImage: ''
 publishedAt: '2014-03-21T12:52:56.000Z'
+date: '2014-03-21T12:52:56.000Z'
 ---
 
 21 mars, 2014, 03 h 12

@@ -8,6 +8,7 @@ slug: 'evolution-des-metiers'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-14T05:40:35.000Z'
+date: '2011-11-14T05:40:35.000Z'
 ---
 
 Le 14 novembre 2011, 05 h 40 

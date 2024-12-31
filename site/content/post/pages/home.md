@@ -8,6 +8,7 @@ slug: 'home'
 description: 'Page d''accueil'
 coverImage: ''
 publishedAt: '2022-03-17T05:35:07.322Z'
+date: '2022-03-17T05:35:07.322Z'
 ---
 
 # Bienvenue sur le site de l'association Béguelins -Béguelines

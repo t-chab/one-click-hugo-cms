@@ -8,6 +8,7 @@ slug: 'histoire-sociale'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-17T13:28:13.000Z'
+date: '2011-11-17T13:28:13.000Z'
 ---
 
 *Le 17 novembre 2011, 05 h 28*

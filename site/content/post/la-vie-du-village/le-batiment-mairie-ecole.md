@@ -8,6 +8,7 @@ slug: 'le-batiment-mairie-ecole'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-17T13:24:35.000Z'
+date: '2011-11-17T13:24:35.000Z'
 ---
 
 *17 novembre 2011, 09 h 37*

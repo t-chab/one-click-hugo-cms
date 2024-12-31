@@ -8,6 +8,7 @@ slug: 'le-creusot-11-09-2021'
 description: ''
 coverImage: ''
 publishedAt: '2021-09-18T12:48:46.000Z'
+date: '2021-09-18T12:48:46.000Z'
 ---
 
 Le 18 septembre 2021, 03 h 16

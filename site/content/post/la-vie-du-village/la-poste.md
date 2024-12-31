@@ -8,6 +8,7 @@ slug: 'la-poste'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-17T13:22:27.000Z'
+date: '2011-11-17T13:22:27.000Z'
 ---
 
 17 novembre 2011, 11 h 23

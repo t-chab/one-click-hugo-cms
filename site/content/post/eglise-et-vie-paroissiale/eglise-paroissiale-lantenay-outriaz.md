@@ -8,6 +8,7 @@ slug: 'eglise-paroissiale-lantenay-outriaz'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-17T13:44:04.000Z'
+date: '2011-11-17T13:44:04.000Z'
 ---
 
 Le 17 novembre, 2011, 10 h 13

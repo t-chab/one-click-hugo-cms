@@ -8,6 +8,7 @@ slug: 'association-familiale'
 description: ''
 coverImage: ''
 publishedAt: '2011-11-15T13:30:38.000Z'
+date: '2011-11-15T13:30:38.000Z'
 ---
 
 Le 15 novembre 2011, 12 h 37
