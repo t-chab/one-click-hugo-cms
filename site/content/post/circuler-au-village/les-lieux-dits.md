@@ -1,13 +1,14 @@
 ---
-author:
-  name: 'geneb'
-  picture: 'https://avatars.githubusercontent.com/u/2120966?v=4'
-coverImage: ''
-title: 'Les lieux dits'
-status: 'published'
-slug: 'les-lieux-dits'
-description: 'Les lieux dits'
 publishedAt: 2011-11-09T13:06:56.000Z
+coverImage: ''
+author:
+  name: geneb
+  picture: https://avatars.githubusercontent.com/u/2120966?v=4
+slug: 'les-lieux-dits'
+date: 2011-11-09T13:06:56.000Z
+status: 'published'
+title: 'Les lieux dits'
+description: 'Les lieux dits'
 ---
 
 Le 9 novembre, 2011, 06 h 17
