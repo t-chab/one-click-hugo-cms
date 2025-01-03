@@ -112,14 +112,12 @@ Nous sommes donc dans une salle de classe, quelque part dans la France rurale, l
 
 ![](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image034_2.jpg)
 
-![Classe en 1958](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/Classe_en_1958_thumb.jpg "Classe en 1958")
 ![Classe en 1958](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/Classe_en_1958_2.jpg "Classe en 1958")
 
 **Classe début années 1950    Classe de Mr Allombert**
 
 **(1958)**
 
-![](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image042_thumb.gif)
 ![](/img/beguelins/Windows-Live-Writer/888fca015dd0_F7ED/clip_image042_2.gif)
 
 **La classe unique de Mr Pélisson en 1969**

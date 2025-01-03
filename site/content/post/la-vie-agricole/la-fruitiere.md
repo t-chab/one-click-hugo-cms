@@ -45,7 +45,6 @@ En **1922** les agriculteurs adoptent les statuts qui créent la **SOCIETE COOPE
 
 ![](/img/beguelins/Windows-Live-Writer/fruitiere/clip_image008_2.jpg)
 
-![](/img/beguelins/Windows-Live-Writer/fruitiere/clip_image010_thumb.jpg "clip_image010")
 ![](/img/beguelins/Windows-Live-Writer/fruitiere/clip_image010_2.jpg)
 
 Légende :

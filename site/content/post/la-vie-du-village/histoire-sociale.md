@@ -27,7 +27,7 @@ date: 2011-11-17T13:28:13.000Z
 
 **Bugey**. … Actif, industrieux, constant et dur au travail, vif, quelquefois emporté, courageux, enjoué, intelligent, docile, religieux, tels sont les traits généraux qui ressortent du caractère du Bugiste, de celui surtout qui cultive la terre, ou qui ne vit que de son travail. *Statistique du préfet Bossi – 1808*
 
-[**![clip_image004](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image004_thumb.jpg "clip_image004")**](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image004_2.jpg)
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image004_2.jpg)
 
 **Les pompiers et le conseil municipal** (années 1920…)
 
@@ -39,13 +39,11 @@ date: 2011-11-17T13:28:13.000Z
 
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/numerisation0005_2.jpg)
 
-![clip_image010](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image010_thumb.gif)
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image010_2.gif)
 
 
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/numerisation0006_2.jpg)
 
-![clip_image016](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image016_thumb.jpg "clip_image016")
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image016_2.jpg)
 
 **1970**
@@ -69,14 +67,12 @@ date: 2011-11-17T13:28:13.000Z
 
 *Statistique du préfet Bossi - 1808*
 
-![clip_image022](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image022_thumb.gif "clip_image022")
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image022_thumb.gif)
 
-![clip_image028](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image028_thumb.gif "clip_image028")
-
+![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image028_thumb.gif)
 
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image030_2.jpg)
 
-![clip_image026](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image026_thumb.gif)
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image026_2.gif)
 
 Vie quotidienne et fêtes
@@ -87,12 +83,10 @@ Vie quotidienne et fêtes
 
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image036_2.jpg)
 
-![clip_image032](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image032_thumb.gif)
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image032_2.gif)
 
 ***1951***
 
-![clip_image034](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image034_thumb.gif)
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image034_2.gif)
 
 
@@ -100,33 +94,24 @@ Vie quotidienne et fêtes
 
 *Famille Julliard Pélisson Gordon 1923*
 
-![clip_image038](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image038_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image038_2.jpg)
 
 *Mariage Pélisson Sève - 1927*
 
 Mon grand père né en 1885, disait : *« Vous ne verrez jamais autant de progrès techniques que moi, j’ai vu les premiers trains, les premières voitures, les avions, l’eau à la maison, l’électricité, la télévision, le téléphone… »*
 
-![clip_image046](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image046_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image046_2.jpg)
 
-![clip_image042](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image042_thumb.gif)
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image042_2.gif)
 
-![clip_image050](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image050_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image050_2.jpg)
 
-![clip_image044](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image044_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image044_2.jpg)
 
-![clip_image048](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image048_thumb.gif)
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image048_2.gif)
 
-![clip_image054](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image054_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image054_2.jpg)
 
-![clip_image052](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image052_thumb.gif)
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image052_2.gif)
 
-![clip_image056](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image056_thumb.gif)
 ![](/img/beguelins/Windows-Live-Writer/779ed8add43c_E93D/clip_image056_2.gif)

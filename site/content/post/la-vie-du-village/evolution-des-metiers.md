@@ -24,7 +24,6 @@ Dans les maisons on **filait** depuis 1760 le coton, puis la soie. On prenait au
 
 **Autour de 1870, Lantenay et Outriaz forment une seule commune.**
 
-![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image004_thumb.gif)
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image004_2.gif)
 
 L’activité est essentiellement tournée vers **l’agriculture** :
@@ -96,7 +95,6 @@ Longtemps, le paysan bugeysien vécut pauvrement. La fabrication du gruyère a r
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image022_2.jpg)
 
 
-![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image026_thumb.gif)
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image026_2.gif)
 
 

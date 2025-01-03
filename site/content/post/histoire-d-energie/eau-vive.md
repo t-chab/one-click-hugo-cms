@@ -54,7 +54,6 @@ Le réservoir d’eau est situé à 772 mètres d’altitude, au sud de la commu
 
 Les premiers compteurs sont posés en **1971**.
 
-![image](/img/beguelins/Windows-Live-Writer/9d0732263223_E9FC/image_thumb.png)
 ![](/img/beguelins/Windows-Live-Writer/9d0732263223_E9FC/image_2.png)
 
 Suite à la terrible sècheresse de **1976** et après plusieurs études de solutions, le conseil municipal décide de faire une demande de raccordement aux eaux du Valromey pour une dépense prévisionnelle de 420 000 francs. L’adhésion au syndicat est signée en **1979**.

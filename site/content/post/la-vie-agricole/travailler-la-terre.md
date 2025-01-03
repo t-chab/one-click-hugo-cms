@@ -22,7 +22,6 @@ Dans les pays de montagnes, elles ne commencent que du 15 au 30 juillet. On comm
 
 ![](/img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image002_2.jpg)
 
-![clip_image004](/img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_thumb.jpg "clip_image004")
 ![](/img/beguelins/Windows-Live-Writer/85de6aeade0c_139E9/clip_image004_2.jpg)
 
 Le Battage

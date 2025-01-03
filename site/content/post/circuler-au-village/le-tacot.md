@@ -106,8 +106,7 @@ Le percement a duré 3 ans… Puis vint l’établissement de la voie de 1909 à
 
 **Ouverture au trafic**
 
-![Tram à la Chenalette 2](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/Tram_a_la_Chenalette_2_thumb_1.jpg)
-![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/Tram_a_la_Chenalette_2_4.jpg)
+![Tram à la Chenalette](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/Tram_a_la_Chenalette_2_4.jpg)
 
 « …*Enfin le 1er avril 1912, la première locomotive partie de Nantua tirant 4 wagons et garnie de drapeaux traversait la vallée, les curieux étaient nombreux à Lantenay où l’on doutait encore qu’elle puisse grimper la rude côte de Chaleyriat* … »
 
@@ -169,7 +168,6 @@ Et nos vaches, étonnées de n’avoir plus de trains à regarder passer, s’av
 
 Une page de l’histoire des tramways de l’Ain, la dernière, est tournée…
 
-![clip_image002](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image002_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image002_2.jpg)
 
 Cher « tacot », adieu !
@@ -202,7 +200,6 @@ Et pour être sûr de le bien faire, nous allons interviewer à son sujet l’ho
 
 \- Oh ! Oui, et c’était bien mérité, allez !
 
-![clip_image008](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image008_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image008_2.jpg)
 
 … Puis vint l’établissement de la voie, en 1909 – 1910 – 1911. Chez nous, elle accrocha son ruban d’acier aux pentes pittoresques des Eculaz et de la Sarrazine, et développa sur 4 kilomètres de rampe, à travers bois et clairières, ses innombrables méandres pour accéder sur un talus gigantesque au vaste contour en ¾ de cercle qui longe le Mollard de notre Vierge et s’incurve finalement sur la gare de Lantenay…
@@ -225,7 +222,6 @@ Vaincu aussi, le froid de l’hiver, par un petit fourneau à charbon situé sou
 
 Parfois, sur un signe du convoyeur, le train s’arrêtait en plein champ de neige… Rassurez-vous, c’était pour permettre à l’employé d’aller piquer un peu le feu languissant sous la voiture, afin d’avoir plus chaud dedans… C’était gentil tout plein et familial au possible…
 
-![clip_image012](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image012_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image012_2.jpg)
 
 Et puis, il y avait aussi l’arrêt avant le tunnel où la machine, assoiffée depuis Saint Martin, se gorgeait d’une eau jaillissante et limpide… de la bonne eau, je vous prie de croire, puisque les Corcellants l’ont toute mise en bouteilles et s’en régalent maintenant.
@@ -242,7 +238,6 @@ Cela durait depuis vingt et un ans, comme ça, quand soudain la fée électricit
 
 Cette fois il fallait dire adieu au vieux tacot devenu poussif et délaisser ses banquettes à claire-voie pour s’installer bourgeoisement sur des fauteuils à ressort au sein d’une lumière éblouissante et d’une atmosphère presque trop chaude, émanée de radiateurs invisibles et qui vous chauffaient les pieds, les jambes, le dos, tout… et cela dans des voitures plus glissantes que roulantes sur une voie devenue impeccable, grâce au travail et à la surveillance constante de notre interlocuteur.
 
-![clip_image016](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image016_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/eeafa2df8a37_F9D6/clip_image016_2.jpg)
 
 \- Pour ça, nous dit-il, je connais mon métier et je l’ai aimé… j’ai bloqué toutes les traverses de mon canton ; et j’en connais tous les coussinets et les tire-fond… Quand au ballast, je l’ai travaillé sans arrêt depuis plus de vingt ans.

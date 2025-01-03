@@ -69,12 +69,10 @@ Dans le clocher, deux cloches Jeanne Henriette (1 200 kg) et Marie Antoinette in
 
 Des travaux d’embellissement ont été réalisé en un siècle, depuis sa reconstruction en 1852, jusqu’à son centenaire en 1952 : Essentiellement l’autel majeur, les statuts de la Vierge et de St Joseph en 1854 puis les vitraux en 1869. Ont suivi,  les boiseries de sapins dans l’abside et les peintures du chœur et des chapelles en 1912.
 
-![clip_image022](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image022_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image022_2.jpg)
 
 A l’occasion du centenaire, le curé de la paroisse, l’abbé Louis SAINT-CYR, fait installer un nouveau baptistère, à l’extérieur de la nef, qui contient les fonds baptismaux sculptés en pierre d’Hauteville.
 
-![clip_image024](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image024_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image024_2.jpg)
 
 *« Cette église… est bien l’image des gens de Lantenay ou d’Outriaz qui, sous leur aspect robuste, cachent une belle âme… » Écho Liberté - 1952*
@@ -85,34 +83,24 @@ A l’inauguration, le sénateur Ruet renouvellera son attachement aux petites c
 
 ***« Pour cela, il faut une mairie pour les affaires courantes, une école pour l’avenir, un cimetière pour le souvenir et une église pour l’espérance. »***
 
-![clip_image028](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image028_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image028_2.jpg)
 
-![clip_image030](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image030_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image030_2.jpg)
 
-![clip_image032](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image032_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image032_2.jpg)
 
-![clip_image034](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image034_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image034_2.jpg)
 
-![clip_image036](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image036_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image036_2.jpg)
 
-![clip_image038](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image038_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image038_2.jpg)
 
-![clip_image042](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image042_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image042_2.jpg)
 
-![clip_image040](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image040_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image040_2.jpg)
 
 *Juillet 1945*
 
-![clip_image046](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image046_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image046_2.jpg)
 
-![numérisation0014](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/numerisation0014_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/numerisation0014_2.jpg)
