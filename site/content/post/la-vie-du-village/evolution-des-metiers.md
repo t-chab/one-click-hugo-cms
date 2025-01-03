@@ -13,7 +13,7 @@ date: 2011-11-14T05:40:35.000Z
 
 Le 14 novembre 2011, 05 h 40 
 
-![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image002_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image002_2.jpg)
 
 « Dans la Combe du Val… l’homme avait instauré une **économie ancienne** qui visait à nourrir ses habitants. Elle était donc fondée sur la **culture des céréales**… l’élevage des bovins et des ovins ne jouait qu’un rôle secondaire… Les habitants partaient **peigner le chanvre** dans toute la Bourgogne ..
@@ -37,10 +37,10 @@ L’activité est essentiellement tournée vers **l’agriculture** :
 
 « **L’industrie** consiste en quelques métiers de soierie, cinq moulins à blé, quatre scieries, beaucoup de carrière de pierre de très bonne qualité, une fruitière pour le fromage de gruyère. **Le commerce** est celui du bois et des planches de sapin…On récolte froment, seigle, orge, avoine et autres menus grains, légumes, d’assez beau chanvre…  » *La France par cantons et par communes – T. Ogier 1895*
 
-![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image006_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image006_2.jpg)
 
-![clip_image008](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image008_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image008_2.jpg)
 
 **A la fin du XIXème siècle**, l’**agriculture** prédomine et repose sur la polyculture et le **tissage** apporte des ressources complémentaires.
@@ -49,10 +49,10 @@ Au recensement de 1896, on compte 61 **cultivateurs** et 31 ouvriers **tisseurs 
 
  
 
-![clip_image010](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image010_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image010_2.jpg)
 
-![clip_image012](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image012_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image012_2.jpg)
 
 **En 1903** : « la commune est **essentiellement agricole**, peu de commerces, trois **épiciers**,
@@ -64,13 +64,13 @@ qui y viennent deux fois par semaine.** »
 
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image014_2.jpg)
 
-![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image018_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image018_2.jpg)
 
-![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image014_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image014_2.jpg)
 
-![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image016_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image016_2.jpg)
 
 Les métiers évoluent dans la **première moitié du XXème siècle**, certains disparaissent (charron, maréchal ferrant, domestique) ou connaissent un développement pour la reconstruction d’après guerre (maçon).
@@ -85,26 +85,26 @@ Recensements de Lantenay
 
 « **L’exploitation des forêts** fait vivre une main-d’œuvre de bûcherons, peu nombreuse en réalité, comprenant parfois des ouvriers italiens. Les bœufs, employés aux charrois en forêt, tirent les grands troncs décharnés qui strient de longues lignes blanches ou brunes le vert des prairies, à l’orée des forêts : c’est là que viennent les prendre les camions… »
 
-![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/numerisation0001_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/numerisation0001_2.jpg)
 
 Longtemps, le paysan bugeysien vécut pauvrement. La fabrication du gruyère a révolutionné la montagne. L’élevage des bêtes à cornes se développa.»
 
 *Annales de géographie – le Haut Bugey – Joseph Berthier 1932*
 
-![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image022_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image022_2.jpg)
 
 
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image026_thumb.gif)
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image026_2.gif)
 
-![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/numerisation0002_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/numerisation0002_2.jpg)
 
 **En 1979 :** « l’activité agricole occupe le tiers de la population active : 15 exploitations essentiellement orientées vers l’élevage, la vocation agricole doit être maintenue.
 
-![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image028_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/390a05e84d25_EE1A/clip_image028_2.jpg)
 
 **Activités artisanales et industrielles** : 2 menuisiers charpentiers, 1 artisan maçon, 1 peintre en bâtiment, 1 artisan mécanicien, 1 usine de transformation du bois sur Outriaz et Lantenay qui emploie plus de 120 salariés.

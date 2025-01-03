@@ -13,7 +13,7 @@ date: 2011-11-22T13:42:25.000Z
 
 Le 22 novembre, 2011, 04 h 21 
 
-![clip_image002](/img/beguelins/Windows-Live-Writer/41ebb8075d6e_E3AF/clip_image002_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/41ebb8075d6e_E3AF/clip_image002_2.jpg)
 
 **Séance du 14/12/1913 :**

@@ -13,12 +13,10 @@ date: 2011-11-17T13:44:04.000Z
 
 Le 17 novembre, 2011, 10 h 13
 
-![clip_image002](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image002_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image002_2.jpg)
 
 Cette église était un ancien doyenné. La paroisse est sous le vocable de l’Assomption, elle existait déjà en 1205 et dépendait de l’abbaye d’Ambronay.
 
-![clip_image004](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image004_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image004_2.jpg)
 
 L’église actuelle a été reconstruite en 1852 à l’emplacement de l’ancien édifice. Sa construction, décidée en 1838 lorsque le clocher en bois de l’ancienne église s’écroule sur la nef, affaiblissant le mur nord, perdurera neuf années (1845-1854).
@@ -31,24 +29,21 @@ On entre par un petit **vestibule** qui distribue le **baptistère** au nord, la
 
 Remarquons le baptistère (de l’ancienne église) placé au pied de l’escalier et le **bénitier** encastré, datant de la Renaissance, venants probablement de la Chartreuse de Meyriat.
 
-![clip_image006](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image006_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image006_2.jpg)
 
 Les fenêtres de la nef sont de simples baies cintrées. **La nef** est entièrement décorée de peintures murales dont les couleurs dominantes sont le jaune et le bleu-vert. Des chapelets ont été peints dans chaque travée, et des motifs accompagnent le chemin de croix en haut relief signé du sculpteur Fabiche (1952).
 
 Le **transept** est éclairé par deux vitraux, au nord celui de St Joseph et au sud celui de la vierge Marie de facture plus contemporaine. Au dessus des autels et des chapelles, sont peints de faux retables en pierre. Autour de ceux-ci, on peut voir des motifs et chérubins reconnaissables à leur paire d’ailes.
 
-![Intérieur Eglise autrefois](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/Interieur_Eglise_autrefois_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/Interieur_Eglise_autrefois_2.jpg)
 
 ***Avant 1952, seuls le chœur et les chapelles sont décorés par le peintre Jacquemet.***
 
 Le **chœur** et l’**abside** sont semi-circulaires, décorés de boiseries : les stalles installées en 1881. Des panneaux muraux décorés de peintures représentent la « descente de la croix » et le « couronnement de la Vierge », ainsi que deux anges. On raconte que deux enfants, un d’Outriaz et un de Lantenay auraient servis de modèle au peintre (Jacquemet 1912).
 
-![clip_image010](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image010_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image010_2.jpg)
 
-![clip_image012](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image012_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image012_2.jpg)
 
 Deux lancettes aux **vitraux** colorés, présentent des personnages bibliques : le Christ et sa nimbe crucifère, St Pierre et sa clef du paradis, St Antoine le Grand porte le tau accompagné d’un sanglier et St Jacques le Majeur et la coquille.
@@ -57,10 +52,8 @@ Le mode de retombé des **voûtes** en berceau nervuré de la nef est assuré pa
 
 **L’élévation extérieure :**
 
-![clip_image014](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image014_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image014_2.jpg)
 
-![clip_image016](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image016_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image016_2.jpg)
 
 Le **parvis** de l’église est surmonté par un **tympan** triangulaire, typiquement néoclassique, reposant sur deux consoles cannelées, au dessus de la porte. Le coté sud présente deux **contreforts** qui scandent les baies, surmonté par un **entablement** qui court le long des façades.
@@ -69,9 +62,7 @@ La nef et les transepts sont recouverts d’ardoises. Le clocher, couvert d’un
 
 *Source : Anne-Siegrid Adamowicz*
 
-![clip_image018](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image018_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image018_2.jpg)
-![clip_image020](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image020_thumb.jpg)
 ![](/img/beguelins/Windows-Live-Writer/fcdfcc9c0cf3_131F9/clip_image020_2.jpg)
 
 Dans le clocher, deux cloches Jeanne Henriette (1 200 kg) et Marie Antoinette installées en 1851.

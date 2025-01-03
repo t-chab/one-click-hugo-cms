@@ -29,7 +29,7 @@ M. le Maire est autorisé à signer avec cette société - convention d’occupa
 
 Le conseil municipal charge M. le Maire et la commission de voierie de procéder à un état des lieux préalable.
 
-![clip_image002](/img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image002_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image002_2.jpg)
 
 **Comment a été choisi le lieu :**
@@ -40,12 +40,12 @@ Lantenay a été choisi suite à l’interprétation géologique des recherches 
 
 Le point d’implantation a été choisi à proximité de la culmination de la structure cartée au toit du Buntsandstein.
 
-![clip_image004](/img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image004_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image004_2.jpg)
 
 *Les recherches d’hydrocarbures se font dans le grès du Buntsandstein (grès bariolé, grès bigarré) couvert par les séries évaporatiques argileuses du Muschelkalk (nom donné à une série de couches tantôt calcaires tantôt marneuses, formant un étage supérieur au grès bigarré) et du kenper (marnes irisées).*
 
-![numérisation0017](/img/beguelins/Windows-Live-Writer/e6d276593cef_F031/numerisation0017_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/e6d276593cef_F031/numerisation0017_2.jpg)
 
 ![clip_image008](/img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image008_thumb.jpg "clip_image008")
@@ -59,7 +59,7 @@ Après avoir passé une convention avec les propriétaires des parcelles sur le 
 - installation du téléphone
 - installation des éléments de forage
 
-![clip_image012](/img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image012_thumb.jpg)
+
 ![](/img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image012_2.jpg)
 
 ![clip_image014](/img/beguelins/Windows-Live-Writer/e6d276593cef_F031/clip_image014_thumb.jpg)
